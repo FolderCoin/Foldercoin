@@ -1,0 +1,2 @@
+# Foldercoin
+https://Foldercoin.io
